@@ -1,0 +1,1 @@
+# KimuraKotaroH6
